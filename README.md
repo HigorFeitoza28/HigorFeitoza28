@@ -1,4 +1,4 @@
-# 📌 Who I Am:
+# 📌 Who Am I:
 
 🌱 Estudante de Ciência da Computação - UFCG
 
